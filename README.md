@@ -7,6 +7,8 @@ How to play the map:
 
 1. Install ZIP archive:
 
+![2024-06-21_14-28-11](https://github.com/Zottormm/OnlyUp/assets/173282302/78a094ee-e5ba-44f0-ac66-55c87e396970)
+
 ![2024-06-19_20-50-47](https://github.com/Zottormm/OnlyUp/assets/173282302/517f9a15-2e6d-4002-9569-e7825fa5f6ad)
 
 
